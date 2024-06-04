@@ -25,7 +25,7 @@ Our commitment to excellence, cutting-edge technologies, and personalized approa
 
 📫 Get in Touch:
 
-Feel free to explore my repositories, collaborate on projects, or reach out for more information about how Evoastra Ventures can help your business. Connect with me on LinkedIn or drop me an email at [Your Email].
+Feel free to explore my repositories, collaborate on projects, or reach out for more information about how Evoastra Ventures can help your business. Connect with me on LinkedIn or drop me an email at aniket@evoastra.com.
 
 
 🚀 Industries We Serve:
